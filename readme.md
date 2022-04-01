@@ -1,2 +1,0 @@
-# jay-reknot
-my profile
